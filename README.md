@@ -1,1 +1,0 @@
-# iub-rover-scout-group
